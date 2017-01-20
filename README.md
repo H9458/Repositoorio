@@ -15,4 +15,6 @@ You think water moves fast? You should see ice. It moves like it has a mind. Lik
 
 [Samuel L. Jacksonin wiki-sivut](https://en.wikipedia.org/wiki/Samuel_L._Jackson)
 
+:-)
+
 
